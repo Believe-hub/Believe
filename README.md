@@ -1,1 +1,1 @@
-# Believe
+The Qatar Cryptocurrency Sales Forum (QCSF) https://qcsf.ltd/  is a government-approved, Qatar-based organization dedicated to enabling secure and compliant access to cryptocurrency for residents of Qatar. In collaboration with KeyFi Wallet, QCSF facilitates the safe acquisition of digital assets from international sellers, offering a trusted channel amidst the regulatory restrictions on domestic crypto trading.
